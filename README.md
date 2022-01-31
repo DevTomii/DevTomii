@@ -1,0 +1,5 @@
+- 👋🏼 Hi, I’m @DevTomii
+- 👀 I’m interested in game,app and web development
+- 🎮 I’m currently working on my first big project, it's a game called Touge Attack
+- 🖤 I'll gladly collaborate on anything that's interesting
+- 📧 If you want to contact me just visit my website or send me an email to this email address tom@themorestudio.sk
